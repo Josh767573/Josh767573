@@ -2,7 +2,7 @@
 - 👀 I’m interested in nothing 😐
 - 🌱 I’m currently learning science
 - 💞️ I’m looking to collaborate on nothing 😐
-- 📫 How to reach me 909-319-3884
+- 📫 How to reach me joshjc841@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
